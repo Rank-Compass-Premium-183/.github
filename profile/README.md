@@ -33,7 +33,7 @@ Utilize a collection of exclusive files and templates designed to streamline you
 
 Benefit from a dedicated support system to assist with any SEO-related queries or issues, ensuring you have expert guidance every step of the way.
 
-[Join Rank Compass Premium Now](https://kelexbawz.com/rankcompass)
+[Join Rank Compass Premium Now](https://whop.com/rankcompass?a=kelechienwere1234)
 
 ---
 
@@ -41,7 +41,7 @@ Benefit from a dedicated support system to assist with any SEO-related queries o
 
 Rank Compass Premium is priced at \$2,499 per month. This premium pricing reflects the comprehensive services and personalized strategies offered. While the cost may be steep for some, businesses that heavily rely on local clientele may find the investment worthwhile due to the potential increase in visibility and customer engagement.
 
-[Join Rank Compass Premium Now to Maximize Your Local SEO Potential](https://kelexbawz.com/rankcompass)
+[Join Rank Compass Premium Now to Maximize Your Local SEO Potential](https://whop.com/rankcompass?a=kelechienwere1234)
 
 ---
 
@@ -55,7 +55,7 @@ Rank Compass Premium is tailored for:
 
 * **SEO Enthusiasts**: Eager to learn and apply effective local SEO strategies for better results.
 
-[Join Rank Compass Premium Now to Elevate Your Local SEO Strategy](https://kelexbawz.com/rankcompass)
+[Join Rank Compass Premium Now to Elevate Your Local SEO Strategy](https://whop.com/rankcompass?a=kelechienwere1234)
 
 ---
 
@@ -69,7 +69,7 @@ Rank Compass Premium is tailored for:
 
 * **Improved ROI**: By enhancing your local visibility, you can attract more customers, leading to increased revenue.
 
-[Join Rank Compass Premium Now to Boost Your Business Growth](https://kelexbawz.com/rankcompass)
+[Join Rank Compass Premium Now to Boost Your Business Growth](https://whop.com/rankcompass?a=kelechienwere1234)
 
 ---
 
@@ -81,7 +81,7 @@ Rank Compass Premium is tailored for:
 
 * **Commitment Required**: SEO results often take time, requiring a commitment to the process before seeing significant improvements.
 
-[Join Rank Compass Premium Now to Start Your SEO Transformation](https://kelexbawz.com/rankcompass)
+[Join Rank Compass Premium Now to Start Your SEO Transformation](https://whop.com/rankcompass?a=kelechienwere1234)
 
 ---
 
@@ -89,6 +89,6 @@ Rank Compass Premium is tailored for:
 
 Rank Compass Premium offers a comprehensive suite of tools and expert guidance aimed at enhancing your local SEO efforts. While the investment is substantial, the potential benefits for businesses reliant on local customers could be significant. If you're prepared to commit to a strategic SEO approach and have the budget to support it, Rank Compass Premium may be the catalyst your business needs to achieve greater online visibility and growth.
 
-[Join Rank Compass Premium Now to Unlock Your Business's Full Potential](https://kelexbawz.com/rankcompass)
+[Join Rank Compass Premium Now to Unlock Your Business's Full Potential](https://whop.com/rankcompass?a=kelechienwere1234)
 
 ---
